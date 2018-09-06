@@ -45,3 +45,5 @@
 1893277 VANGAHARISH A MOMENT OF PAIN LIFE TIME GLORY.......
 
 1893073 bingisai :The heart,like the stomach, wants a varied diet.
+
+1892649 prakashreddy: “Be yourself; everyone else is already taken.” 
