@@ -6,3 +6,4 @@
 1892595 Avik If you tell the truth, you don't have to remember anything.”
 
 1892594 Krunal: Dont try to impress people. Always be your self.
+1892794 Sonam : Life isnt Perfect but your outfit can be.!
