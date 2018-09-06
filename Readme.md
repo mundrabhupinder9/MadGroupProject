@@ -17,3 +17,5 @@
 1893558: Chinna Reddy : Follow your heart
 
 1892807 DurgaPriyaKalam: Nothing will work unless you do
+
+1893679 Keerthana Nimmagadda: Always Take time to make your soul Happyyyy :)
