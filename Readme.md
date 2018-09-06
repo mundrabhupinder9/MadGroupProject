@@ -4,3 +4,5 @@
 
 
 1892595 Avik If you tell the truth, you don't have to remember anything.”
+
+1892594 Krunal: Dont try to impress people. Always be your self.
