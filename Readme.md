@@ -40,3 +40,6 @@
 
 1893176 Hari gandham :"Success is not final, failure is not fatal: it is the courage to continue that counts." 
 
+1893314 konani mallikarjun reddy:Be good Do better Give best 
+
+
