@@ -61,3 +61,5 @@
 1892746 : jay Each day, I come in with a positive attitude, trying to get better.
 
 1893686 : Prabhasa : Happiness comes from acceptance.. 
+
+1893084  mithil: laughter is the best medicine.
