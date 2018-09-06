@@ -47,3 +47,5 @@
 1893073 bingisai :The heart,like the stomach, wants a varied diet.
 
 1892649 prakashreddy: “Be yourself; everyone else is already taken.” 
+
+1892994 swapnil patel:  "never rest to be the best"
