@@ -57,3 +57,6 @@
 1892720 Harsh Patel: Live Like There Is No Tomorrow.
 
 1893407 Jasil Jose : Great things in business are never done by one person. They're done by a team of people.
+
+1892746 : jay Each day, I come in with a positive attitude, trying to get better.
+
