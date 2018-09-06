@@ -49,3 +49,9 @@
 1892649 prakashreddy: “Be yourself; everyone else is already taken.” 
 
 1892994 swapnil patel:  "never rest to be the best"
+
+1893144 Donepudi Venkata Sasidhar: Laugh and make others to laugh.
+
+
+
+
